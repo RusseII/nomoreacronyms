@@ -2,4 +2,4 @@
 
 https://nomoreacronyms.com 
 
-please sponsor this project if you're interested in supporting the philosophy.
+please sponsor this project if you're interested in supporting the philosophy. 
