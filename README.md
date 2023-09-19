@@ -1,6 +1,6 @@
 # nomoreacronyms  
 
-https://nomoreacronyms.com 
+https://nomoreacronyms.com  
 
 please sponsor this project if you're interested in supporting the philosophy.   
  
